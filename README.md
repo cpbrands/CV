@@ -1,1 +1,1 @@
-One way to tell the story of my life.
+Another way to tell the story of my life.
